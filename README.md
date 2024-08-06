@@ -36,7 +36,8 @@ I combine technical excellence with creative solutions to deliver projects that 
 I’m always open to new projects and collaborations. Feel free to reach out and let’s make something amazing together!
 
 🔗 [Connect with me on LinkedIn](https://www.linkedin.com/in/janmuhammadsoomro/)  
-📧 Email: jan.muhammad@example.com
+📧 Email: jansoomro990@gmail.com
+
 
 ---
 
